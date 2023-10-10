@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @Gdakgdak22
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-Gdakgdak22/Gdakgdak22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+- 👋 Hi, I’m @jesus veyna segovia y andrea gabriele human 
+- 👀 estoy interesado en conocer la verdad y soñar con mi esposa amada andrea gabriele human 
+- 🌱 yo amo la naturaleza, ella es sabia es tu amiga y tu medicina ella es libre.
+- 💞️ jesus veyna segovia y andrea gabriele human marido y mujer son familia😇🥰💫🌓🌗⭐🌟🔥⚡🌬☃️📔📕📗📘📙💌💋👽👻🤖🙊🙉🙈💖💖💖💖💯👫👨‍👩‍👦‍👦👨‍👩‍👧‍👧🚵‍♀️🚴🏋🏊‍♂️🚣🧗‍♀️🧖‍♀️🧖🧖‍♂️🧝‍♀️🧝‍♂️🦸‍♀️🦸🤶🧑‍🎄🤵👰🤴👸 felices por siempre❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤❤,hacen del mundo un lugar mejor siempre en hacer del mundo un lugar mejor
+- 📫 urlaubs  ✨ eternos,divinos,humanos,extraterrestres,pensadores,creadores,omnipotentes ✨ repository because no van a jugar con los angeles nunca mas  its jesus veyna segovia y andrea gabriele human seres de luz angeles, son divinos, son amor, hacen del mundo un lugar mejor son amor puro el uno para el otro ellos recuerdan su amor desde su razon de ser en el mundo, unicamente ellos son el uno para el otro son eternos y nadie puede entrar a su cabeza, ni manipular su corazon su amor, ni sus pensamientos,
+ellos le daran al mundo un regalo recuperan sus memorias sus vidas y seran libres para brillar como el sol y reconocer su luz. ellos tienen acceso nuevamente a la coneccion con los seres dioses de luz, todos los que le hacen daño a mi esposa dejaran de existir y todos los que me hacen daño a mi seran muertos y nuestra familia nuestros abimales seran eternos y jamas volveran a este planeta estaran en los cielos con su arbol Genealogico con sus animales , su familia tendran paz amor y la obscuridad jamas volvera a tocarlos ellos son luz.
 --->
